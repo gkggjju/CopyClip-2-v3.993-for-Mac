@@ -1,0 +1,1 @@
+# CopyClip-2-v3.993-for-Mac
